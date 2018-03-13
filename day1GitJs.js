@@ -1,5 +1,5 @@
-//my first JS
-// modified in Pappu branch
-//my first JS2
-//my first JS3
-//my changes in Fattu
+//dont show your attitude
+// Tom boy
+//bahen jii
+//First you have to look like girl
+//then show your attitude
